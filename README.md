@@ -15,4 +15,4 @@ Below talbe is the RV parks we stayed during my trip, and WiFi ratings.
 |Aquia Pines Camp Resort | 3071 Jefferson Davis Hwy, Stafford, VA 22554| Free wifi| \*|
 |Mountain Glen RV Park & Campground| 6182 Brockdell Rd, Pikeville, TN 37367| Free wifi| \*\*\* |
 
-\* Near a Mennonite community which is very interesting.
+\* Mountain Glen RV Park & Campground near a Mennonite community which is very interesting.
